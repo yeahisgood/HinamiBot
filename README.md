@@ -1,0 +1,4 @@
+# HinamiBot
+
+
+docs cuming soon 
